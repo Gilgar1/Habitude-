@@ -1,1 +1,6 @@
-# Habitude-
+# Habitude-![ac](https://github.com/user-attachments/assets/5f612842-b4d3-4bbe-a19b-c371cf5add00)
+![ad](https://github.com/user-attachments/assets/0e5fac8f-40f4-4925-bac2-c08e250fd254)
+![aa](https://github.com/user-attachments/assets/9e944253-e464-4755-987d-b5d9c948bc27)
+![ab](https://github.com/user-attachments/assets/30c382ef-24f0-43fa-99fb-62e6fd20b93b)
+![light](https://github.com/user-attachments/assets/8d7c031d-a2ac-47c2-b052-24e7590625df)
+![dark](https://github.com/user-attachments/assets/459a9517-6258-44a7-8209-4b2641efdf2b)
